@@ -1,1 +1,3 @@
-# the-pursuit-of-god
+# *A Deep Dive into A.W. Tozer's "The Pursuit of God": A Thirst for the Divine*
+## *“The Pursuit of God: The Human Thirst for the Divine” by A. W. Tozer is a timeless spiritual classic, written as both a heartfelt confession and a rousing call for believers to put seeking God at the center of their lives. Each of its 10 concise but profound chapters explores a distinct aspect of God’s invitation to intimacy—from radical renunciation and the stripping away of distractions, to beholding God in daily life and resting in His continual presence. This blog walks through every chapter in detail, drawing out key themes, practical wisdom, striking quotes, and the enduring message Tozer longs for every seeker to receive.* [More details…](https://spiritualkhazaana.com/the-pursuit-of-god-a-thirst-for-the-divine/)
+## #thepursuitofgod #pursuitofgod #walkingwithgod #discerningthevoiceofgod #trustinggod #spiritualjourney #spiritualgrowth
